@@ -1,10 +1,13 @@
-- 👋 Hi, I’m Amber B!
-- 👀 I’m interested in reading writing and drawing. i like kpop and more
-
-- 🌱 I’m currently learning high school basic stuff.
-- 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me: discord: allxaboutam
-- 😄 Pronouns: she/her
-- ⚡ Fun fact: Im mainly on here to find proxys lol
+- 👋 hiya, im am!
+- 👀 im looking for anybody that will collaborate on web proxies for iPad.
+- 🌱 im currently learning how to become a nail technician.
+- 💞️ im available MON-FRI 8:35 AM-3:45 PM EST
+- 📫 how to reach me: below
+- 😄 pronouns/sexuality: she/her and perfectly straight.
+- ⚡ fun fact: i want to be a nurse. and a nail technician.
 - https://sharkyy.vercel.app/
 - https://aluu.xyz/
+
+- ⭐️ discord: theyluvam.
+- ⭐️ discord 2.0: allxaboutam.
+- ⭐️ insta: totallynotam_
