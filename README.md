@@ -6,3 +6,4 @@
 - 📫 How to reach me: discord: allxaboutam
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Im mainly on here to find proxys lol
+- https://sharkyy.vercel.app/
