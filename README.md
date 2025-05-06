@@ -7,3 +7,4 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Im mainly on here to find proxys lol
 - https://sharkyy.vercel.app/
+- https://aluu.xyz/
